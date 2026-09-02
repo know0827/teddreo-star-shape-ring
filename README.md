@@ -1,0 +1,1 @@
+# teddreo-star-shape-ring
